@@ -34,4 +34,4 @@ DMCA/Copyright Policy
 We respect copyright law and expect you to do the same. It’s our policy to terminate those accounts that repeatedly infringe or are believed to be repeatedly infringing the rights of copyright holders.
 
 Contact Us
-If you have any issues or questions, please contact us at dangquocvinh02112001@gmail.com
+If you have any issues or questions, please contact us at dqvinh@zinhpixry.website
